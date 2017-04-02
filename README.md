@@ -1,7 +1,7 @@
 Cloned Cube
 ==
 
-Cloned Cube is a modification of the Valve game Portal by the modder cubis. This new mod adds a brand new story involving the clone of Chell escaping from Aperture while fighting the villain, CUBiS.
+Cloned Cube is a LAMER modification of the Valve game Portal by the modder cubis. This new mod adds a brand new story involving the clone of Chell escaping from Aperture while fighting the villain, CUBiS.
 
 Links
 ==
